@@ -9,6 +9,6 @@ If you're looking for a dedicated and skilled full-stack developer who can trans
 Let's collaborate and turn your ideas into digital masterpieces!
 
 
-Let's Get in Touch
-Upwork:
-Freelancer: 
+### Let's Get in Touch
+Upwork: [@JinalBodara](https://www.upwork.com/freelancers/~0130f5f1e903417d0a)
+Freelancer: @jinalbodara (https://www.freelancer.com/u/jinalbodara)
