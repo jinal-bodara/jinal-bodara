@@ -7,3 +7,8 @@ My commitment to delivering top-notch results is unwavering, and I place a stron
 If you're looking for a dedicated and skilled full-stack developer who can transform your web development visions into reality, I'd love to be part of your team.
 
 Let's collaborate and turn your ideas into digital masterpieces!
+
+
+Let's Get in Touch
+Upwork:
+Freelancer: 
