@@ -12,5 +12,4 @@ Let's collaborate and turn your ideas into digital masterpieces!
 ### Let's Get in Touch
 
 Upwork: [@JinalBodara](https://www.upwork.com/freelancers/~0130f5f1e903417d0a)
-
 Freelancer: [@jinalbodara](https://www.freelancer.com/u/jinalbodara)
